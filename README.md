@@ -2,7 +2,7 @@
 - 👀 I’m interested in block chain and machine learning
 - 🌱 I’m currently learning block chain
 - 💞️ I’m looking to collaborate on new systems
-- 📫 How to reach me ...
+- 📫 How to reach me DM ME at @ exiledangel-04 in instagram
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i am a part-time music producer and a writer
 <!---
